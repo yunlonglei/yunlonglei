@@ -14,3 +14,6 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+- 🔭 热爱，让激情澎湃！
+- 🤔 万事且如意
+- 🌱 希望，加油。
